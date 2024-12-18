@@ -13,6 +13,7 @@ A White Polo Sweater works for all seasons. Lightweight designs are ideal for su
 
 **Easy to Style**
 Whether you’re pairing it with chinos, jeans, or tailored trousers, the White Polo Sweater transitions seamlessly between various looks.
+
 ## How to Style a White Polo Sweater
 
 **1. For Casual Days**
